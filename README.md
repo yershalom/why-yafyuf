@@ -10,6 +10,6 @@ On my first day @omribahumi called me Shalom Hayafyuf (Pretty boy), and I didn't
 
 Later that day @bergundy looked at me and said what a "Yafyuf". I was really flattered but it was weird, I'm not that pretty.
 
-Only few days later Omri showed me Tzabari Brothers' youtube clip, with a character called Shalom Hayafyuf.
+Only few days later Omri showed me [Tzabari Brothers' youtube clip](https://youtu.be/mk_qRtdCbXE?t=248), with a character called Shalom Hayafyuf.
 
 Since then, thousands of people acknowledged this nickname.
