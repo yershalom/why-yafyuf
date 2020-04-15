@@ -1,9 +1,9 @@
 # why-yafyuf
 
-##tl;dr
+## tl;dr
 [shalom hayafyuf](https://youtu.be/mk_qRtdCbXE?t=248)
 
-##The whole story
+## The whole story
 In 2014 I started work at EverythingMe.
 
 On my first day @omribahumi called me Shalom Hayafyuf (Pretty boy), and I didn't pay too much attention for that.
